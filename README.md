@@ -20,3 +20,15 @@ When it comes to safety and durability, MANXPOWER delivers excellence through in
 Choosing the right sealing tape is critical for ensuring leak-free installations and maintaining system safety. MANXPOWER <a href="https://manximpex.com/ptfe-teflon-tape-2/" title="PTFE Teflon Tape" alt"PTFE Teflon Tape" <a>PTFE Teflon Tape</a> offers unmatched reliability, making it a must-have for plumbers, contractors, and industrial users. Whether for plumbing, HVAC, or high-pressure systems, MANXPOWER provides a product that guarantees superior performance and peace of mind.<br>
 <h3>About us:</h3>
 Manx Impex, an ISO 9001:2015 certified company, established in 2015 is a partnership firm located in the heart of Delhi. We have earned an excellent name as a firm since we have started, and our drive to serve our customers helps us achieve greater heights every day. We supply/distribute our products to numerous businesses as well as customers in different parts of India, and we are constantly trying to increase our supply.<br>
+<h3>Get in touch with us:</h3>
+<li>For order, https://manximpex.com/ptfe-teflon-tape-2/ </li><br>
+<li>E-mail: info@manximpex.com </li><br>
+<li>Contact number: +91- 7428115550, +91- 7428115550.</li><br>
+<li>Address: 3963/9, Ground Floor, City Market, Ajmeri Gate, Delhi 110006.</li><br>
+<h3>Follow us on:</h3>
+<li>Instagram: https://www.instagram.com/manximpex/ </li><br>
+<li><b>Facebook: https://www.facebook.com/manximpex/ </b></li><br>
+<li>LinkedIn: https://in.linkedin.com/company/manx-impex </li><br>
+<li>Pinterest: https://in.pinterest.com/manximpex/ </li><br>
+<h3>People also searches:</h3>
+<a href="https://manximpex.com/ptfe-teflon-tape-2/" title="PTFE Plumbers Tape" alt"PTFE Plumbers Tape" <a>PTFE Plumbers Tape</a> | <a href="https://manximpex.com/ptfe-teflon-tape-2/" title="Thread Seal Tape" alt"Thread Seal Tape" <a>Thread seal Tape</a> | <a href="https://manximpex.com/ptfe-teflon-tape-2/" title="Teflon Plumbers Tape" alt"Teflon Plumbers Tape" <a>Teflon Plumbers Tape</a>
